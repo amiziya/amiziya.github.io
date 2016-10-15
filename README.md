@@ -1,0 +1,1 @@
+# amiziya.github.io
